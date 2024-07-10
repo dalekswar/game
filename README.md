@@ -1,5 +1,5 @@
 1. Who?
-2. With Stiv Jobs
+2. With Stivy Jobs
 3. Where?
 4. When?
 5. What did they do? 
