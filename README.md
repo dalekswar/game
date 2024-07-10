@@ -8,5 +8,5 @@
 8. What were they wearing?
 9. How did they feel?
 10. What happened next?
-11. Who saw them?
+11. Tutors saw them.
 12. What was the consequence?
