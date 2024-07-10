@@ -1,7 +1,7 @@
 1. Who?
 2. With whom?
 3. Where?
-4. When?
+4. When? when the pyramids were getting built 
 5. What did they do? 
 6. Why did they do it?
 7. What did they say?
